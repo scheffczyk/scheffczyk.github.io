@@ -11,3 +11,9 @@ But anyway, a great guy.
 * schizophrenic
 * bisexual
 * paranoiac
+
+> Hmm .... ,
+> to add a quote is a difficult one
+> I don't remember at the moment
+> so I will continue without ...
+
