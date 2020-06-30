@@ -17,4 +17,4 @@ But anyway, a great guy.
 > I don't remember at the moment
 > so I will continue without ...
 
-<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/3/39/RussellCroweOct05.jpg/200px-RussellCroweOct05.jpgi">
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/3/39/RussellCroweOct05.jpg/200px-RussellCroweOct05.jpg">
